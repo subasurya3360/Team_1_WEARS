@@ -1,6 +1,6 @@
 # Team_1_WEARS
 
-https://www.instagram.com/team_1__wears/?utm_source=qr&igshid=OGIxMTE0OTdkZA%3D%3D
+Instagram business page----https://www.instagram.com/team_1__wears/?utm_source=qr&igshid=OGIxMTE0OTdkZA%3D%3D
 
 Assignment [Q.no 1] : (create a blog or website)---https://subasurya3360.wixsite.com/mysite
 
